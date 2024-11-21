@@ -23,7 +23,11 @@ etc.
 Goal is to provide a experience !
 
 Dates for oral exam:
+
 20.01
+
 03.02
+
 18.02
+
 Give in the report 2 days before the oral exam! Has to be given in before the first person does the oral exam!
